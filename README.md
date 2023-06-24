@@ -1,1 +1,1 @@
-TEDx MANIT
+TEDxMANITBhopal
